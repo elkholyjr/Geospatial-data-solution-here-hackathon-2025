@@ -7,4 +7,3 @@
 ![PresentationPDF_page-0007](https://github.com/user-attachments/assets/ccab757b-9d08-4d6d-89f6-339aa41ab523)
 ![PresentationPDF_page-0008](https://github.com/user-attachments/assets/c34bdea0-61e1-4dc2-9444-52110bc5a815)
 ![PresentationPDF_page-0009](https://github.com/user-attachments/assets/1a946a4c-9230-4240-ad81-6ab04c5ab9c8)
-![PresentationPDF_page-0010](https://github.com/user-attachments/assets/06c3f689-9f40-4161-9a11-ec0aa4933cd4)
